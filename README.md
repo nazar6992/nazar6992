@@ -1,0 +1,3 @@
+- Hi, I’m @nazar6992
+- I’m interested in discord.py
+- 📫 How to reach me: nazar#6992 (or dc id 933448238747504711)
